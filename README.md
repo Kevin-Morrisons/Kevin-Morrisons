@@ -1,3 +1,7 @@
-- 👋 Hi, I’m Kevin-Morrisons
-- 👀 I’m interested in essay writing services
-- 📫 Reach me at www.sampleassignment.com
+- Hi, I’m Kevin-Morrisons
+- I’m interested in essay writing services
+- Reach me at www.sampleassignment.com
+- https://www.facebook.com/sampleassignment
+- https://www.instagram.com/sampleassignment.au/
+- https://twitter.com/SampleAssign
+- https://www.youtube.com/channel/UCevClGNC8Tirq1CANCdVUig
